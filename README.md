@@ -13,6 +13,8 @@ Don't Be Evil
 * But don't be just blindly nice to people. If they're nasty to you, you are allowed to be rude to them.
 * Don't steal other people's stuff
 * Be nice to other people
+* Rape is never ok. Sex must be consensual. Even if you're married.
+* You do not ever own another human being. Wife, husband, child. You cannot take their life.
 
 # Meetups
 * Totally optional
