@@ -35,3 +35,6 @@ Email me!
 # Immediate need
 * Someone who can do some video work pro-bono for the Kickstarter campaign
 * A catchy name!
+
+# Forking.
+Sure, fork away. But why not join forces?
