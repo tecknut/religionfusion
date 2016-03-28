@@ -18,6 +18,12 @@ Don't Be Evil
 * Totally optional
 * If you are interested in meeting up with others in your area, start a local group.
 
+# Official RF Food
+* Anything is fine
+
+# Official RF Drink
+* Anything is fine
+
 # Kickstarter
 Soon!
 
