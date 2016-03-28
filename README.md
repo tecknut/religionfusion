@@ -32,10 +32,10 @@ Don't Be Evil
 Soon!
 
 # How do I know if I'm a member of RF?
-* Just by declaring that you are, or that you aren't
+Just by declaring that you are, or that you aren't
 
 # Commitment
-* Join and leave anytime you want. Obviously if more people leave than join, then it's feedback that we're doing something wrong and need to evolve
+Join and leave anytime you want. Obviously if more people leave than join, then it's feedback that we're doing something wrong and need to evolve
 
 # Volunteer
 Email me!
@@ -46,3 +46,7 @@ Email me!
 
 # Forking
 Sure, fork away. But why not join forces?
+
+# Fscking
+* Anything goes, but if you must do it, don't do it without protection
+* Be decent to others. Be respectful and don't be reckless with other people's feelings
