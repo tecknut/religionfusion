@@ -31,6 +31,12 @@ Don't Be Evil
 # Kickstarter
 Soon!
 
+# How do I know if I'm a member of RF?
+* Just by declaring that you are, or that you aren't
+
+# Commitment
+* Join and leave anytime you want. Obviously if more people leave than join, then it's feedback that we're doing something wrong and need to evolve
+
 # Volunteer
 Email me!
 
