@@ -11,11 +11,12 @@ Don't Be Evil
 
 # Rules
 * Don't kill people
-* Other religions are ok, accept them as human beings too. Even atheists.
+* Killing others to spread or defend RF is totally NOT OK, at all
+* Other religions are ok, accept them as human beings too. Even atheists
 * But don't be just blindly nice to people. If they're nasty to you, you are allowed to be rude to them, or call the cops (if applicable)
 * Don't steal other people's stuff
 * Be nice to other people
-* Rape is never ok. Sex must be consensual. Even if you're married.
+* Rape is never ok. Sex must be consensual. Even if you're married
 * You do not ever own another human being. Wife, husband, child. You cannot take their life
 
 # Meetups
@@ -33,6 +34,12 @@ We don't do guilt
 
 # Kickstarter
 Soon!
+
+# Sacred rock or place or object
+There is none
+
+# Religious baggage
+There is none
 
 # How do I know if I'm a member of RF?
 Just by declaring that you are, or that you aren't
