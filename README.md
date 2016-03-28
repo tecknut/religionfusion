@@ -47,6 +47,12 @@ Just by declaring that you are, or that you aren't
 # Commitment
 Join and leave anytime you want. Obviously if more people leave than join, then it's feedback that we're doing something wrong and need to evolve
 
+# Physical health
+RF recommends activity to maintain a healthy lifestyle
+
+# Mental health
+Mental health is a BIG DEAL. RF recommends activities to improve friendship, widen one's social circle and good parenting. Kind of like A. A., we welcome anyone who needs to see a therapist or need psychological medication. It is not baggage. Gotta take care of your mind, because it's just another muscle in your body. Medication is good too.
+
 # Volunteer
 Email me!
 
