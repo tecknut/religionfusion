@@ -28,6 +28,9 @@ Don't Be Evil
 # Official RF Drink
 * Anything is fine
 
+# Guilt
+We don't do guilt
+
 # Kickstarter
 Soon!
 
