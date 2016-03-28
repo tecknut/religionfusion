@@ -79,5 +79,8 @@ Sure, fork away. But why not join forces?
 # P0rn
 Any kind is fine, except child p0rn or animal p0rn
 
+# After Life Benefits
+We'll get together and provide after life benefits, but we're not entirely sure if we can deliver. So, just to be safe, live a good life in the present
+
 # Is this a parody or joke?
 Someone started Star Wars as a religion, but nobody is offended. This is a legit religion that promotes its followers to be good people. Why is that offensive?
