@@ -1,3 +1,5 @@
+# *** THIS IS NOT A JOKE. WE ARE STARTING A NEW RELIGION. ***
+
 # Religion Fusion
 Religion Fusion (RF) is a religion that combines the best of most religions. RF shall be referred to as RF, until a catchier name is found. If you have suggestions to add to this list, email me!
 
