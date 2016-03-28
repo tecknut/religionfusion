@@ -1,4 +1,4 @@
-# *** THIS IS NOT A JOKE. WE ARE STARTING A NEW RELIGION. ***
+# *** THIS IS NOT A JOKE. WE ARE STARTING A NEW RELIGION ***
 
 # Religion Fusion
 Religion Fusion (RF) is a religion that combines the best of most religions. RF shall be referred to as RF, until a catchier name is found. If you have suggestions to add to this list, email me!
@@ -11,8 +11,9 @@ Don't Be Evil
 
 # Rules
 * Don't kill people
-* Other religions are ok, accept them as human beings too. Even atheists.
-  * If someone feels very strongly about something about their religion, don't try to convince them otherwise. The promotion of peace and tolerance supercedes logical and scientific correctness.
+  * Unless it's Osama Bin Laden. Then that's totally ok
+* Other religions are ok, accept them as human beings too. Even atheists
+  * If someone feels very strongly about something about their religion, don't try to convince them otherwise. The promotion of peace and tolerance supercedes logical and scientific correctness
     * That doesn't mean that you have to give up your own beliefs. You are free to believe anything you want, as well as the other person. Agree to disagree
 * But don't be just blindly nice to people. If they're nasty to you, you are allowed to be rude to them, or call the cops (if applicable)
 * Don't steal other people's stuff
