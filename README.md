@@ -4,7 +4,7 @@
 Religion Fusion (RF) is a religion that combines the best of most religions. RF shall be referred to as RF, until a catchier name is found. If you have suggestions to add to this list, email me!
 
 # Why
-Aren't you tired of religions that are mostly good, but have some bad parts written 1,000 years ago, but can't be updated to reflect cultural and societal accepted norms, because the guy who wrote it declared it as a static global constant? As you can see, this religion is based on a living document. It's on Github, for Jay's sake! (Jay is the guy who started this)
+Aren't you tired of religions that are mostly good, but have some bad parts written 1,000 years ago, but can't be updated to reflect the present day's cultural and societal accepted norms, because the guy who wrote it declared it as a static global constant? As you can see, this religion is based on a living document. It's on Github, for Jay's sake! (Jay is the guy who started this)
 
 # Motto
 Don't Be Evil
