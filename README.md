@@ -69,7 +69,8 @@ Email me!
 Sure, fork away. But why not join forces?
 
 # Fscking
-* Anything goes, but if you must do it, don't do it without protection
+* By default, you must use protection
+  * Unless you and your partner(s) know definitively that none of you have STDs (as verified medically)
 * Be decent to others. Be respectful and don't be reckless with other people's feelings
 
 # P0rn
