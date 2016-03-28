@@ -11,7 +11,6 @@ Don't Be Evil
 
 # Rules
 * Don't kill people
-* Killing others to spread or defend RF is totally NOT OK, at all
 * Other religions are ok, accept them as human beings too. Even atheists
 * But don't be just blindly nice to people. If they're nasty to you, you are allowed to be rude to them, or call the cops (if applicable)
 * Don't steal other people's stuff
@@ -39,10 +38,13 @@ Soon!
 None. It's totally fine with RF, if you also participate in other religions. You don't have to denounce your membership with other religions just because you want to be in RF. But if they're not cool with you in being RF, that's between you and them (not in RF's "jurisdiction"). But we're cool if you like us and like others too.
 
 # Sacred rock or place or object
-There is no object sacred enough to fight or die over in RF
+There is no object sacred enough to fight or die over in RF4
 
 # Religious baggage
 There is none
+
+# Promotion / Advocacy of RF
+You can talk about RF to others, but do NOT be pushy, or trick them. Per the rule about not allowing killing, killing others to spread or defend RF is totally NOT OK, at all
 
 # How do I know if I'm a member of RF?
 Just by declaring that you are, or that you aren't
