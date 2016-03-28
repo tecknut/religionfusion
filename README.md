@@ -23,3 +23,7 @@ Soon!
 
 # Volunteer
 Email me!
+
+# Immediate need
+* Someone who can do some video work pro-bono for the Kickstarter campaign
+* A catchy name!
