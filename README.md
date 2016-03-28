@@ -11,7 +11,9 @@ Don't Be Evil
 
 # Rules
 * Don't kill people
-* Other religions are ok, accept them as human beings too. Even atheists
+* Other religions are ok, accept them as human beings too. Even atheists.
+  * If someone feels very strongly about something about their religion, don't try to convince them otherwise. The promotion of peace and tolerance supercedes logical and scientific correctness.
+    * That doesn't mean that you have to give up your own beliefs. You are free to believe anything you want, as well as the other person. Agree to disagree
 * But don't be just blindly nice to people. If they're nasty to you, you are allowed to be rude to them, or call the cops (if applicable)
 * Don't steal other people's stuff
 * Be nice to other people
@@ -38,7 +40,7 @@ Soon!
 None. It's totally fine with RF, if you also participate in other religions. You don't have to denounce your membership with other religions just because you want to be in RF. But if they're not cool with you in being RF, that's between you and them (not in RF's "jurisdiction"). But we're cool if you like us and like others too.
 
 # Sacred rock or place or object
-There is no object sacred enough to fight or die over in RF4
+There is no object sacred enough to fight or die over in RF
 
 # Religious baggage
 There is none
@@ -75,3 +77,6 @@ Sure, fork away. But why not join forces?
 
 # P0rn
 Any kind is fine, except child p0rn or animal p0rn
+
+# Is this a parody or joke?
+Someone started Star Wars as a religion, but nobody is offended. This is a legit religion that promotes its followers to be good people. Why is that offensive?
