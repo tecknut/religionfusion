@@ -35,6 +35,9 @@ We don't do guilt
 # Kickstarter
 Soon!
 
+# Exclusitivity
+None. It's totally fine with RF, if you also participate in other religions. You don't have to denounce your membership with other religions just because you want to be in RF. But if they're not cool with you in being RF, that's between you and them (not in RF's "jurisdiction"). But we're cool if you like us and like others too.
+
 # Sacred rock or place or object
 There is none
 
