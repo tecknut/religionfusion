@@ -9,7 +9,7 @@ Don't Be Evil
 
 # Rules
 * Don't kill people
-* Other religions are ok, accept them as human beings too
+* Other religions are ok, accept them as human beings too. Even atheists.
 * But don't be just blindly nice to people. If they're nasty to you, you are allowed to be rude to them.
 * Don't steal other people's stuff
 * Be nice to other people
