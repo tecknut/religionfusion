@@ -18,7 +18,7 @@ Aren't you tired of religions that are mostly good, but have some bad parts writ
 * Customer service as the core of RF, RF seeks to serve its followers. Not the other way around.
 
 # Motto
-Don't Be Evil
+Don't Be Evil.
 
 # Rules
 * Don't kill people.
